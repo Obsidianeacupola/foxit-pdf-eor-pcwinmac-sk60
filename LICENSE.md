@@ -1,4 +1,4 @@
-# 
+# Elite Foxit PDF Editor plugins for Mac OS | Automatic Foxit PDF Editor plugins for PC Windows. Featuring investment tracking and cash flow forecasting — optimized for maximum performance on every platform.
 
 
 
